@@ -1,4 +1,4 @@
 # 👋 Hi, I'm Shahidul Islam
-A full time content creator on & web developer. <br />
+A full time Web Developer, Programmer, Software Engineer <br />
 🏠 Living: Dhaka, Bangladesh. 
 
